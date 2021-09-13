@@ -8,4 +8,4 @@
 
 ### [Existing Buildings and Energy Modeling Subteam Fall 2019 Report](https://drive.google.com/file/d/1jPt0FT6GTk89qRLSGnCncDFOveiT-0ES/view?usp=sharing)
 
-### [CUSD Ithaca Green Building Policy for Existing Buildings Spring 2020 Report](https://drive.google.com/file/d/1pvhvdij96SR0g3PROOXrGbMn1zgUe372/view)
+### [Ithaca Carbon-Neutral Buildings Study](https://www.academia.edu/43739968/Ithaca_Carbon_Neutral_Buildings_Study)
